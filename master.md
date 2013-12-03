@@ -13,3 +13,5 @@ wanna take a shower with me? shot, i said shot!
 she gets around, she's like a bike.
 
 I just want a fucking Tiger, but I need something to lead up to it, after I understand cats.
+
+I would wake up and eat her ass every morning. 
