@@ -17,3 +17,5 @@ I just want a fucking Tiger, but I need something to lead up to it, after I unde
 I would wake up and eat her ass every morning. 
 
 What if applications could talk? 
+
+"you know the best way to eat a girl out? spell the ABC's with your tongue." "No, I just spell out Kolby Bothe."
