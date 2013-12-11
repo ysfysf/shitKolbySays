@@ -19,3 +19,5 @@ I would wake up and eat her ass every morning.
 What if applications could talk? 
 
 "you know the best way to eat a girl out? spell the ABC's with your tongue." "No, I just spell out Kolby Bothe."
+
+"your penis doesn't have muscles in it." "What? mine does!"
