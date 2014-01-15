@@ -23,3 +23,5 @@ What if applications could talk?
 "your penis doesn't have muscles in it." "What? mine does!"
 
 "I want the 12 inch!"
+
+"let's create a social network for young kids, called YoYo, you're only young once. once you're 8, you're done."
