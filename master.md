@@ -27,3 +27,5 @@ What if applications could talk?
 "let's create a social network for young kids, called YoYo, you're only young once. once you're 8, you're done."
 
 "it's like everyday you get a new newspaper"
+
+*2 ripped guys walk in shirtless* "God damn! that's a bad nigga!"
