@@ -29,3 +29,5 @@ What if applications could talk?
 "it's like everyday you get a new newspaper"
 
 *2 ripped guys walk in shirtless* "God damn! that's a bad nigga!"
+
+*Gio's pants are sagging* "Gio, you should wear a thong!"
