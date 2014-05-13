@@ -33,3 +33,5 @@ What if applications could talk?
 *Gio's pants are sagging* "Gio, you should wear a thong!"
 
 "The moon is only 250,000 miles away!"
+
+"Do you ever forget to type words when you code?" 
