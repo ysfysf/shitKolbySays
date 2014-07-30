@@ -35,3 +35,5 @@ What if applications could talk?
 "The moon is only 250,000 miles away!"
 
 "Do you ever forget to type words when you code?" 
+
+kolby likes to suck man balls
